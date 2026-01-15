@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Arpita Singh!
 
-🎓 2nd Year IT Student at Banasthali Vidyapith
+🎓 BTech IT Student at Banasthali Vidyapith
 💡 Passionate about Web Development, DSA & System Design
 🚀 Currently building Full-Stack Projects & Learning High-Level DSA
 
