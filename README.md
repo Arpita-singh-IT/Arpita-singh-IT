@@ -19,7 +19,8 @@
 ---
 
 ## 📬 Connect with Me
-
+Linkedin  https://www.linkedin.com/in/arpita-singh-637559369                 
+Email  - singharpita292005@gmail.com
 ---
 
 ### ⚡ Fun Fact
